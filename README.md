@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi All View my certifications and projects
 
 ## 📄 Certificates
 
